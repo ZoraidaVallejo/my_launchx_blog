@@ -9,13 +9,7 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+> Tengo 28 años, y actualmente trabajo en un pesto Junior de Front-End. Quiero seguir aprendiendo y estoy interesada a aprender mas de VueJs, React, Angular, así como aprender a utilizar NPM y diferentes librerias.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
-
+> Me gusta ver animes, peliculas o series de super heroes. Mi banda favorita es PXNDX.
+> Tengo 2 mascotas Maya & Nymeria 
